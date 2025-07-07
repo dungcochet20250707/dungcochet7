@@ -19,4 +19,4 @@
 
 使用这些资源的同时，也建议注意个人隐私与设备安全，选择有SSL加密、用户口碑好的网站，并配合广告拦截工具使用，避免跳转或恶意链接干扰。只要掌握了这些技巧，你就能轻松、安全、免费地畅享丰富的日本AV资源。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dungcochet20250707/dungcochet7 ）</span>
